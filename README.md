@@ -1,6 +1,6 @@
-<img width="2048" height="1152" alt="Untitled153_20250906111302" src="https://github.com/user-attachments/assets/7f648ce0-25a4-43d9-90d5-25a5ad086b5a" />
+![tumblr_6e961ee6ed81b0f7d3d61795b50f9061_c1715bc3_1280](https://github.com/user-attachments/assets/086c74f3-8e3c-4037-92c2-9d5f557beaeb)
 
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+![tumblr_bbb6721c9d2d8c19785cb055e45b5f90_736ce2ef_1280](https://github.com/user-attachments/assets/7a34d9a2-0603-42fd-87a0-f6f44ddf0daa)
 
 ### [[RENTRY]](https://rentry.co/SHELLYF0SSILIANN) - [STRW IN WIP]
 
@@ -8,7 +8,7 @@
 
 $${\color{orange}BYI/DNI}$$
 
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+![tumblr_bbb6721c9d2d8c19785cb055e45b5f90_736ce2ef_1280](https://github.com/user-attachments/assets/7a34d9a2-0603-42fd-87a0-f6f44ddf0daa)
 
 > If out of roleplay and you suddenly decided to chat with me, there's a high chance my responses are awkward, or silence.
 >
@@ -22,7 +22,7 @@ $${\color{orange}BYI/DNI}$$
 >
 > **Whisper me or ask me if you want to do a ship rp! I don't mind those, but I will try my best to do these ship rps!**
 
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+![tumblr_bbb6721c9d2d8c19785cb055e45b5f90_736ce2ef_1280](https://github.com/user-attachments/assets/7a34d9a2-0603-42fd-87a0-f6f44ddf0daa)
 
 > Please, Dandys world fandom, iwcuf. Unless I'm more comfortable.
 >
@@ -34,8 +34,8 @@ $${\color{orange}BYI/DNI}$$
 >
 > **I BLOCK, OR HIDE FREELY. DO THESE MORE OFTEN. BLOCKED OR HIDE.**
 
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+![tumblr_1098dc4210b94fd5e30a2f1703793e29_de96dd58_1280](https://github.com/user-attachments/assets/7338c890-c55c-4df9-b2b3-cbf18816f92e)
 
 $${\color{yellow}Thanks-For-Reading}$$
 
-<img width="1280" height="429" alt="Untitled151_20250906105907" src="https://github.com/user-attachments/assets/e7585c67-f39d-4fb4-8e54-a7be329b1c13" />
+![tumblr_1098dc4210b94fd5e30a2f1703793e29_de96dd58_1280](https://github.com/user-attachments/assets/7338c890-c55c-4df9-b2b3-cbf18816f92e)
