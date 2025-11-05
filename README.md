@@ -4,9 +4,9 @@
 
 ### [[RENTRY]](https://rentry.co/SHELLYF0SSILIANN) - [STRW IN WIP]
 
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+![tumblr_1098dc4210b94fd5e30a2f1703793e29_de96dd58_1280](https://github.com/user-attachments/assets/7338c890-c55c-4df9-b2b3-cbf18816f92e)
 
-$${\color{orange}BYI/DNI}$$
+$${\color{tan}BYI/DNI}$$
 
 ![tumblr_bbb6721c9d2d8c19785cb055e45b5f90_736ce2ef_1280](https://github.com/user-attachments/assets/7a34d9a2-0603-42fd-87a0-f6f44ddf0daa)
 
@@ -34,8 +34,8 @@ $${\color{orange}BYI/DNI}$$
 >
 > **I BLOCK, OR HIDE FREELY. DO THESE MORE OFTEN. BLOCKED OR HIDE.**
 
-![tumblr_1098dc4210b94fd5e30a2f1703793e29_de96dd58_1280](https://github.com/user-attachments/assets/7338c890-c55c-4df9-b2b3-cbf18816f92e)
+![tumblr_bbb6721c9d2d8c19785cb055e45b5f90_736ce2ef_1280](https://github.com/user-attachments/assets/7a34d9a2-0603-42fd-87a0-f6f44ddf0daa)
 
-$${\color{yellow}Thanks-For-Reading}$$
+$${\color{tan}ThanksㅤForㅤReading}$$
 
 ![tumblr_1098dc4210b94fd5e30a2f1703793e29_de96dd58_1280](https://github.com/user-attachments/assets/7338c890-c55c-4df9-b2b3-cbf18816f92e)
